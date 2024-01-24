@@ -1,4 +1,4 @@
-- Мой канал в Телеграм: [oumae_mk](https://t.me/+bHgaMW-ajFhkY2Fi)
+- Мой канал в Telegram: [oumae_mk](https://t.me/+bHgaMW-ajFhkY2Fi)
 - По вопросам после покупки, обращайтесь в чат на сайте, где был оформлен заказ.
 
 ## Свитчи
